@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Mehdi
+- 👋 Hi, I’m Mehdi Tahari
 - 👀 I’m interested in sports/video games
 - 🌱 I’m currently learning IT
 - 📫 How to reach me Nowhere
