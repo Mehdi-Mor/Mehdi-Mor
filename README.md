@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Mehdi
-- 👀 I’m interested in sports
+- 👀 I’m interested in sports/video games
 - 🌱 I’m currently learning IT
 - 📫 How to reach me Nowhere
 - ⚡ Fun fact: None
